@@ -10,4 +10,10 @@ ARRAYS
 
 ![image](https://github.com/user-attachments/assets/f8238471-7f13-4831-ac49-249965ef9fb4)
 
+![image](https://github.com/user-attachments/assets/38d174be-9103-43af-9d62-692616a278f1)
+
+![image](https://github.com/user-attachments/assets/10067670-4e70-431b-9dde-b5985448a21e)
+
+
+
 
