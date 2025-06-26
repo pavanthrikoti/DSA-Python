@@ -23,6 +23,10 @@ ARRAYS
 ![image](https://github.com/user-attachments/assets/de1d749c-91cf-4097-81ee-dede681d9cf5)
 
 
+![image](https://github.com/user-attachments/assets/b182cc8e-cd52-4135-824e-7e624e9ec63a)
+![image](https://github.com/user-attachments/assets/b182cc8e-cd52-4135-824e-7e624e9ec63a)
+
+
 
 
 
