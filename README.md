@@ -14,6 +14,19 @@ ARRAYS
 
 ![image](https://github.com/user-attachments/assets/10067670-4e70-431b-9dde-b5985448a21e)
 
+![image](https://github.com/user-attachments/assets/30be1ac1-5932-4036-8760-cf4985379ce3)
+
+![image](https://github.com/user-attachments/assets/eaf34d69-2858-4c69-8a44-1a2c3db4008b)
+
+![image](https://github.com/user-attachments/assets/8b5f4269-e447-4961-81ee-357fba7c989b)
+
+![image](https://github.com/user-attachments/assets/de1d749c-91cf-4097-81ee-dede681d9cf5)
+
+
+
+
+
+
 
 
 
