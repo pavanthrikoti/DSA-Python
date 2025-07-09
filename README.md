@@ -27,6 +27,16 @@ ARRAYS
 
 ![image](https://github.com/user-attachments/assets/93b00baa-b070-4a94-906c-4d7852f7405e)
 
+![image](https://github.com/user-attachments/assets/ce7cba7d-bf51-49be-b8b6-dd9388ba7fde)
+
+
+![image](https://github.com/user-attachments/assets/a8010b8b-6012-4561-9607-ca5ae58d1398)
+
+![image](https://github.com/user-attachments/assets/5be5458f-1514-4906-97b6-272badb536b2)
+
+![image](https://github.com/user-attachments/assets/573b921b-4d1a-495c-8afe-faee4be59e2a)
+
+
 strings
 
 ![image](https://github.com/user-attachments/assets/b456f160-c09e-46ff-bf11-a4bb51939c25)
@@ -40,6 +50,7 @@ strings
 ![image](https://github.com/user-attachments/assets/3d4d86b1-5707-4b9b-9a63-f09d13cb9ef3)
 
 ![image](https://github.com/user-attachments/assets/518c9382-4cfc-4d54-80df-1dda8775b50f)
+
 
 
 
