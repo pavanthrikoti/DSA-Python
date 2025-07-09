@@ -36,6 +36,14 @@ ARRAYS
 
 ![image](https://github.com/user-attachments/assets/573b921b-4d1a-495c-8afe-faee4be59e2a)
 
+![image](https://github.com/user-attachments/assets/67f7a341-ad5e-4fd3-ac01-b5bb1612fba3)
+
+![image](https://github.com/user-attachments/assets/7b1088e5-a656-47c8-9feb-3adb625f9098)
+
+![image](https://github.com/user-attachments/assets/160a2c12-24b2-4f44-b0df-96e274f07ef0)
+
+![image](https://github.com/user-attachments/assets/9b8185bb-3c9d-4055-b8e2-adb0820edb64)
+
 
 strings
 
